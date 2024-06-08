@@ -1,0 +1,7 @@
+- 👋 Hi, I’m LightbringZXS
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning everything I can, but mainly python and C++ (when I can 'cause I'm busy)
+- 💞️ I’m looking to collaborate on almost anything. Just ask him if I can help I will!
+- 📫 How to reach me lightbringerzxs@gmail.com
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: 5 out of 5 people say I'm a genius
