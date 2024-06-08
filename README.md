@@ -1,5 +1,5 @@
 - 👋 Hi, I’m LightbringZXS
-- 👀 I’m interested in ...
+- 👀 I’m interested in... Well no specialty yet (I'm very new to this)
 - 🌱 I’m currently learning everything I can, but mainly python and C++ (when I can 'cause I'm busy)
 - 💞️ I’m looking to collaborate on almost anything. Just ask him if I can help I will!
 - 📫 How to reach me lightbringerzxs@gmail.com
