@@ -1,7 +1,7 @@
-- 👋 Hi, I’m LightbringZXS
-- 👀 I’m interested in... Well no specialty yet (I'm very new to this)
-- 🌱 I’m currently learning everything I can, but mainly python and C++ (when I can 'cause I'm busy)
+- 👋 Hi, I’m Aaron Zenith
+- 👀 I’m interested in Linux and open-source software.
+- 🌱 I’m currently learning pretty much everything
 - 💞️ I’m looking to collaborate on almost anything. Just ask him if I can help I will!
-- 📫 How to reach me lightbringerzxs@gmail.com
+- 📫 How to reach me aaronzenith@proton.me
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: 5 out of 5 people say I'm a genius
