@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Aaron Zenith
 - 👀 I’m interested in Linux and open-source software.
 - 🌱 I’m currently learning pretty much everything
-- 💞️ I’m looking to collaborate on almost anything. Just ask him if I can help I will!
+- 💞️ I’m looking to collaborate on almost anything. Feel free to ask, may not have expertise, but open to learning.
 - 📫 How to reach me aaronzenith@proton.me
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: 5 out of 5 people say I'm a genius
